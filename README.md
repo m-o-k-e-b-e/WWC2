@@ -1,1 +1,1 @@
-Live: https://cacler.github.io/WWC2/
+Live: https://m-o-k-e-b-e.github.io/WWC2/
